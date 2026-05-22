@@ -1,1 +1,1 @@
-# mahfuzrma.github.io jvuvuc
+ mahfuzrma.blogspot.com
