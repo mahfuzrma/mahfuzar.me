@@ -8,7 +8,7 @@
 
 # [visit my fb id FB.me/mahfuzrma clicking here](https://FB.me/mahfuzrma)
 
-star
+# star
  A star is a luminous spheroid of plasma held together by self-gravity.[1] The nearest star to Earth is the Sun. Many other stars are visible to the naked eye at night; their immense distances from Earth make them appear as fixed points of light. The most prominent stars have been categorised into constellations and asterisms, and many of the brightest stars have proper names. Astronomers have assembled star catalogues that identify the known stars and provide standardized stellar designations. The observable universe contains an estimated 1022 to 1024 stars. Only about 4,000 of these stars are visible to the naked eye—all within the Milky Way galaxy.[2]
 
 
@@ -25,7 +25,7 @@ Stars can form orbital systems with other astronomical objects, as in planetary 
 
 
 
-Etymology
+# Etymology
 
 The word "star" ultimately derives from the Proto-Indo-European root "h₂stḗr" also meaning star, but further analyzable as h₂eh₁s- ("to burn", also the source of the word "ash") + -tēr (agentive suffix). Compare Latin stella, Greek aster, German Stern. Some scholars[who?] believe the word is a borrowing from Akkadian "istar" (Venus). "Star" is cognate (shares the same root) with the following words: asterisk, asteroid, astral, constellation, Esther.[3]
 
@@ -123,7 +123,7 @@ The internationally recognized authority for naming celestial bodies is the Inte
 
 
 
-Units of measurement
+# Units of measurement
 
 Although stellar parameters can be expressed in SI units or Gaussian units, it is often most convenient to express mass, luminosity, and radii in solar units, based on the characteristics of the Sun. In 2015, the IAU defined a set of nominal solar values (defined as SI constants, without uncertainties) which can be used for quoting stellar parameters:
 
