@@ -1,0 +1,25 @@
+title: Welcome to Mahfuz's website
+description: Personal website of MD Mahfuzar Rahman
+url: "https://mahfuzar.me"
+baseurl: ""
+
+# Jekyll settings
+theme: jekyll-theme-minimal
+markdown: kramdown
+plugins:
+  - jekyll-feed
+  - jekyll-seo-tag
+
+# Author information
+author:
+  name: MD Mahfuzar Rahman
+  email: mahfuzrma@hotmail.com
+
+# Build settings
+exclude:
+  - Gemfile
+  - Gemfile.lock
+
+# GitHub Pages specific settings
+github:
+  is_project_page: false
