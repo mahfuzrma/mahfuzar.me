@@ -9,12 +9,4 @@
 MahfuzRMA
 FB.me/mahfuzrma
 
-## Latest News from Prothom Alo
-
-Stay updated with short summaries from Prothom Alo:
-
-- [Prothom Alo RSS Feed](https://www.prothomalo.com/feed/) — Latest headlines and summaries from Prothom Alo.
-- [Prothom Alo English Bangladesh RSS](https://en.prothomalo.com/bangladesh/rss) — English-language Bangladesh news.
-- [Prothom Alo English Sports RSS](https://en.prothomalo.com/sports/rss) — English-language sports updates.
-
-You can use this feed in an RSS reader or a website widget to show short summaries of the latest news.
+#
