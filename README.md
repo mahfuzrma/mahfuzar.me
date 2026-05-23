@@ -14,6 +14,803 @@
 
 <p></p><div class="separator" style="clear: both; text-align: center;"><iframe allowfullscreen="" class="BLOG_video_class" height="266" src="https://www.youtube.com/embed/ppOLjLNMY4w" width="320" youtube-src-id="ppOLjLNMY4w"></iframe></div><br />&nbsp;<div class="separator" style="clear: both; text-align: center;"><iframe allowfullscreen="" class="BLOG_video_class" height="266" src="https://www.youtube.com/embed/QvB2oeZSaVI" width="320" youtube-src-id="QvB2oeZSaVI"></iframe></div><br /><div class="separator" style="clear: both; text-align: center;"><iframe allowfullscreen="" class="BLOG_video_class" height="266" src="https://www.youtube.com/embed/4h_fWI1ocpk" width="320" youtube-src-id="4h_fWI1ocpk"></iframe></div><br /><div class="separator" style="clear: both; text-align: center;"><iframe allowfullscreen="" class="BLOG_video_class" height="266" src="https://www.youtube.com/embed/Gc4sJM4L3Bc" width="320" youtube-src-id="Gc4sJM4L3Bc"></iframe></div><br /><div class="separator" style="clear: both; text-align: center;"><iframe allowfullscreen="" class="BLOG_video_class" height="266" src="https://www.youtube.com/embed/FwYEH22KPMs" width="320" youtube-src-id="FwYEH22KPMs"></iframe></div><br /><div class="separator" style="clear: both; text-align: center;"><iframe allowfullscreen="" class="BLOG_video_class" height="266" src="https://www.youtube.com/embed/xrNZvzviq7Q" width="320" youtube-src-id="xrNZvzviq7Q"></iframe></div><br /><p></p>
 
+প্রবেশ কর
+
+
+প্রবেশ কর
+
+
+
+অনুসন্ধান করুন
+
+
+প্রবেশ কর
+
+ভাষা নির্বাচন কর
+
+
+English
+
+العربية
+
+বাংলা
+
+فارسی
+
+Français
+
+Indonesia
+
+Italiano
+
+Dutch
+
+Português
+
+русский
+
+Shqip
+
+ภาษาไทย
+
+Türkçe
+
+اردو
+
+简体中文
+
+Melayu
+
+Español
+
+Kiswahili
+
+Tiếng Việt
+কুরআন অনুসন্ধান করুন...
+
+কুরআন নেভিগেট করুন
+
+
+জনপ্রিয়
+
+পড়া চালিয়ে যান
+আমার কুরআন
+
+001
+১. Al-Fatihah
+সূচনা
+আয়াত
+১
+🕋
+সেরা দিনগুলোর পুরস্কারগুলো হাতছাড়া করবেন না!
+মাসিক দাতা হন
+মাসিক অনুদান আমাদের Quran.com-এর উন্নতি এবং কার্যক্রম টিকিয়ে রাখতে সাহায্য করে, তাই আমরা তহবিল সংগ্রহের উপর কম এবং প্রভাব তৈরির উপর বেশি মনোযোগ দিই। আরও জানুন
+
+এখনই দান করুন
+
+কুরআন বৃদ্ধির যাত্রা
+তোমার কুরআনের লক্ষ্য অর্জন করো
+স্ট্রিক ট্র্যাক করুন, কাস্টম লক্ষ্য তৈরি করুন, ধারাবাহিক থাকুন
+
+বিষয়গুলি অন্বেষণ করুন
+রমজান কি? 
+কুরআন সম্পর্কে 
+সুন্নাহ সম্পর্কে আয়াত 
+এক বছরে কুরআন
+ক্যালেন্ডার
+
+واذكروا نعمة الله عليكم وميثاقه الذي واثقكم به اذ قلتم سمعنا واطعنا واتقوا الله ان الله عليم بذات الصدور ٧
+وَٱذْكُرُوا۟ نِعْمَةَ ٱللَّهِ عَلَيْكُمْ وَمِيثَـٰقَهُ ٱلَّذِى وَاثَقَكُم بِهِۦٓ إِذْ قُلْتُمْ سَمِعْنَا وَأَطَعْنَا ۖ وَٱتَّقُوا۟ ٱللَّهَ ۚ إِنَّ ٱللَّهَ عَلِيمٌۢ بِذَاتِ ٱلصُّدُورِ ٧
+এই সপ্তাহের পাঠের একটি পদ
+
+وَٱذۡكُرُواْ
+نِعۡمَةَ
+ٱللَّهِ
+عَلَيۡكُمۡ
+وَمِيثَٰقَهُ
+ٱلَّذِي
+وَاثَقَكُم
+بِهِۦٓ
+إِذۡ
+قُلۡتُمۡ
+سَمِعۡنَا
+وَأَطَعۡنَاۖ
+وَٱتَّقُواْ
+ٱللَّهَۚ
+إِنَّ
+ٱللَّهَ
+عَلِيمُۢ
+بِذَاتِ
+ٱلصُّدُورِ
+٧
+"তোমাদের প্রতি আল্লাহর নিআমতের কথা স্মরণ কর আর তাঁর অঙ্গীকারের কথা যা তিনি তোমাদের নিকট থেকে গ্রহণ করেছিলেন যখন তোমরা বলেছিলে- আমরা শুনলাম ও মেনে নিলাম। আল্লাহকে ভয় কর, অন্তরে যা আছে সে সম্পর্কে আল্লাহ খুব ভালভাবেই অবগত আছেন।" Al-Ma'idah ৫:৭
+এই সপ্তাহের পঠন
+শেখা শুরু করুন
+আরও দেখুন
+Answering Allah’s Call to Hajjনতুন!
+Where Allah’s Names Interlock: A Deep Quranic Journey Through Divine Pairings
+The Path to Paradise: Small Consistent Actions That Lead to Jannah
+The Nearest Ties: Quranic Rights of Family
+Why Allah Tests Us: Finding Strength and Wisdom in Trials
+Little Hearts, Big Prayers: Raising Children Who Love Salah
+From Wandering Eyes to a Watchful Heart: The Road Back to Modesty
+The Heart of the Quran: Lessons from Surah Yā Sīn on Faith, Mercy, and Accountability
+The Opening of the Heart: Lessons From Surah Al-Fatihah
+30 Transformative Days with Surah Al-Mulk: Learn, Reflect, Memorize
+Preparing our Hearts for Ramadan
+When the Stars Prostrated: Reflections on Surah Yusuf
+4 Life-Changing Stories: Lessons From Surah Al-Kahf
+Created in Pairs: Mercy and Forgiveness in Marriage
+The Islam of Ibrahim: Walking in the Footsteps of the Friend of Allah
+Tawakkul: Trusting Allah in an Age of Anxiety
+Standing Tall: A Faith‑Based Response to Hate
+SWT: Allah’s Absolute Glory and Perfection
+What is Ihsan? Discover the quality that elevates how you live, work, and worship
+"Am I Sincere?": The Importance of Doing Everything for the Sake of Allah
+How To Cultivate Barakah in a Busy Routine
+From Recitation to Transformation: A 7‑Day Path to Living the Quran
+Guarding the Tongue: Protecting the Heart
+The Rescuer: Powerful Lessons in Surah Al-Mulk
+Quiet the Storm: A Quranic Guide for Anxious Hearts
+Among Those Allah Loves: Qualities Loved By The Most Merciful
+Do Not Despair: Journeying from the Weight of Guilt to the Doors of Mercy
+Screen Addiction: When Screens Steal the Heart
+Transforming How You Approach the Salah: Praying on time, with Focus
+Mindful Fasting
+Five Lenses to Reflect on the Quran
+The Iron Healing: Lessons & Reflections from Surah al-Hadid
+Maintaining Your Momentum: Avoiding the Post-Ramadan Slump
+How to Explore the Quran
+اللہ ہمیں کیوں آزماتا ہے: آزمائشوں میں قوت اور حکمت تلاش کرنا
+مستقل مزاجی سے چھوٹے اعمال: جنت کا راستہ
+دلوں کی کشادگی: سورۃ الفاتحہ سے اسباق
+قریبی رشتے: خاندان کے قرآنی حقوق
+ننھے دل، بڑی دعائیں: ایسے بچوں کی تربیت جو نماز سے محبت کریں
+سورہ یٰسین: ایمان، رحمت اور احتساب کے ابدی اسباق
+সম্প্রদায়
+যুল-হিজ্জাহ মাসের ফজিলত সম্পর্কে জানুন
+
+কুরআনের আলোচনা, স্মরণীয় বিষয় এবং শেখার উপকরণের মাধ্যমে যুল-হিজ্জাহ মাস সম্পর্কে আপনার জ্ঞানকে আরও গভীর করুন।
+
+আজকের আলোচিত পদ এবং প্রতিফলন পড়ুন
+
+কুরআন অ্যাপস
+কুরআনের সাথে আপনার বিকাশকে আরও এগিয়ে নিতে সংযুক্ত অ্যাপস।
+
+বৈশিষ্ট্যযুক্ত অ্যাপস
+আরও দেখুন
+কুরআন প্রতিফলন
+কুরআন প্রতিফলন
+প্রতিফলন পড়ুন এবং শেয়ার করুন
+
+কারিয়াহ
+কারিয়াহ
+মহিলা কুরআন তিলাওয়াতকারীরা
+
+কুরআন স্পেস
+কুরআন স্পেস
+লাইভ স্টাডি সার্কেল
+
+সূরা
+জুজ
+উদ্ঘাটন আদেশ
+ক্রমানুসার:
+আরোহী
+১
+Al-Fatihah
+সূচনা
+001
+৭ আয়াত
+২
+Al-Baqarah
+বকনা-বাছুর
+002
+২৮৬ আয়াত
+৩
+Ali 'Imran
+ইমরানের পরিবার
+003
+২০০ আয়াত
+৪
+An-Nisa
+নারী
+004
+১৭৬ আয়াত
+৫
+Al-Ma'idah
+খাদ্য পরিবেশিত টেবিল
+005
+১২০ আয়াত
+৬
+Al-An'am
+গৃহপালিত পশু
+006
+১৬৫ আয়াত
+৭
+Al-A'raf
+উচু স্থান
+007
+২০৬ আয়াত
+৮
+Al-Anfal
+যুদ্ধ-লব্ধ ধনসম্পদ
+008
+৭৫ আয়াত
+৯
+At-Tawbah
+অনুশোচনা
+009
+১২৯ আয়াত
+১০
+Yunus
+নবী ইউনুস
+010
+১০৯ আয়াত
+১১
+Hud
+নবী হুদ
+011
+১২৩ আয়াত
+১২
+Yusuf
+নবী ইউসুফ
+012
+১১১ আয়াত
+১৩
+Ar-Ra'd
+বজ্রপাত
+013
+৪৩ আয়াত
+১৪
+Ibrahim
+নবী ইবরাহীম
+014
+৫২ আয়াত
+১৫
+Al-Hijr
+পাথুরে পাহাড়
+015
+৯৯ আয়াত
+১৬
+An-Nahl
+মৌমাছি
+016
+১২৮ আয়াত
+১৭
+Al-Isra
+ইহুদি জাতি
+017
+১১১ আয়াত
+১৮
+Al-Kahf
+গুহা
+018
+১১০ আয়াত
+১৯
+Maryam
+মারইয়াম (ঈসা নবীর মা)
+019
+৯৮ আয়াত
+২০
+Taha
+ত়া হা
+020
+১৩৫ আয়াত
+২১
+Al-Anbiya
+নবীগণ
+021
+১১২ আয়াত
+২২
+Al-Hajj
+হ়াজ্জ
+022
+৭৮ আয়াত
+২৩
+Al-Mu'minun
+বিশ্বাসী
+023
+১১৮ আয়াত
+২৪
+An-Nur
+আলো
+024
+৬৪ আয়াত
+২৫
+Al-Furqan
+মানদণ্ড
+025
+৭৭ আয়াত
+২৬
+Ash-Shu'ara
+কবি
+026
+২২৭ আয়াত
+২৭
+An-Naml
+পিঁপড়া
+027
+৯৩ আয়াত
+২৮
+Al-Qasas
+কাহিনি
+028
+৮৮ আয়াত
+২৯
+Al-'Ankabut
+মাকড়শা
+029
+৬৯ আয়াত
+৩০
+Ar-Rum
+রোমান জাতি
+030
+৬০ আয়াত
+৩১
+Luqman
+এক জ্ঞানী ব্যাক্তি
+031
+৩৪ আয়াত
+৩২
+As-Sajdah
+সিজদা
+032
+৩০ আয়াত
+৩৩
+Al-Ahzab
+জোট
+033
+৭৩ আয়াত
+৩৪
+Saba
+রানী সাবা/শেবা
+034
+৫৪ আয়াত
+৩৫
+Fatir
+আদি স্রষ্টা
+035
+৪৫ আয়াত
+৩৬
+Ya-Sin
+ইয়াসীন
+036
+৮৩ আয়াত
+৩৭
+As-Saffat
+সারিবদ্ধভাবে দাঁড়ানো
+037
+১৮২ আয়াত
+৩৮
+Sad
+আরবি বর্ণ সাদ
+038
+৮৮ আয়াত
+৩৯
+Az-Zumar
+দলবদ্ধ জনতা
+039
+৭৫ আয়াত
+৪০
+Ghafir
+ক্ষমাকারী
+040
+৮৫ আয়াত
+৪১
+Fussilat
+সুস্পষ্ট বিবরণ
+041
+৫৪ আয়াত
+৪২
+Ash-Shuraa
+পরামর্শ
+042
+৫৩ আয়াত
+৪৩
+Az-Zukhruf
+সোনাদানা
+043
+৮৯ আয়াত
+৪৪
+Ad-Dukhan
+ধোঁয়া
+044
+৫৯ আয়াত
+৪৫
+Al-Jathiyah
+নতজানু
+045
+৩৭ আয়াত
+৪৬
+Al-Ahqaf
+বালুর পাহাড়
+046
+৩৫ আয়াত
+৪৭
+Muhammad
+নবী মুহাম্মদ
+047
+৩৮ আয়াত
+৪৮
+Al-Fath
+বিজয়
+048
+২৯ আয়াত
+৪৯
+Al-Hujurat
+আবাস
+049
+১৮ আয়াত
+৫০
+Qaf
+কাফ
+050
+৪৫ আয়াত
+৫১
+Adh-Dhariyat
+বিক্ষেপকারী বাতাস
+051
+৬০ আয়াত
+৫২
+At-Tur
+পাহাড়
+052
+৪৯ আয়াত
+৫৩
+An-Najm
+তারা
+053
+৬২ আয়াত
+৫৪
+Al-Qamar
+চাঁদ
+054
+৫৫ আয়াত
+৫৫
+Ar-Rahman
+পরম করুণাময়
+055
+৭৮ আয়াত
+৫৬
+Al-Waqi'ah
+নিশ্চিত ঘটনা
+056
+৯৬ আয়াত
+৫৭
+Al-Hadid
+লোহা
+057
+২৯ আয়াত
+৫৮
+Al-Mujadila
+অনুযোগকারিণী
+058
+২২ আয়াত
+৫৯
+Al-Hashr
+সমাবেশ
+059
+২৪ আয়াত
+৬০
+Al-Mumtahanah
+নারী, যাকে পরীক্ষা করা হবে
+060
+১৩ আয়াত
+৬১
+As-Saf
+সারিবদ্ধ সৈন্যদল
+061
+১৪ আয়াত
+৬২
+Al-Jumu'ah
+সম্মেলন/শুক্রবার
+062
+১১ আয়াত
+৬৩
+Al-Munafiqun
+ভণ্ড বিশ্বাসী
+063
+১১ আয়াত
+৬৪
+At-Taghabun
+মোহ অপসারণ
+064
+১৮ আয়াত
+৬৫
+At-Talaq
+তালাক
+065
+১২ আয়াত
+৬৬
+At-Tahrim
+নিষিদ্ধকরণ
+066
+১২ আয়াত
+৬৭
+Al-Mulk
+সার্বভৌম কর্তৃত্ব
+067
+৩০ আয়াত
+৬৮
+Al-Qalam
+কলম
+068
+৫২ আয়াত
+৬৯
+Al-Haqqah
+নিশ্চিত সত্য
+069
+৫২ আয়াত
+৭০
+Al-Ma'arij
+উন্নয়নের সোপান
+070
+৪৪ আয়াত
+৭১
+Nuh
+নবী নূহ
+071
+২৮ আয়াত
+৭২
+Al-Jinn
+জিন সম্প্রদায়
+072
+২৮ আয়াত
+৭৩
+Al-Muzzammil
+বস্ত্রাচ্ছাদনকারী
+073
+২০ আয়াত
+৭৪
+Al-Muddaththir
+পোশাক পরিহিত
+074
+৫৬ আয়াত
+৭৫
+Al-Qiyamah
+পুনরুত্থান
+075
+৪০ আয়াত
+৭৬
+Al-Insan
+মানবজাতি
+076
+৩১ আয়াত
+৭৭
+Al-Mursalat
+প্রেরিত পুরুষ
+077
+৫০ আয়াত
+৭৮
+An-Naba
+মহাসংবাদ
+078
+৪০ আয়াত
+৭৯
+An-Nazi'at
+প্রচেষ্টাকারী
+079
+৪৬ আয়াত
+৮০
+'Abasa
+সে ভ্রু কুঁচকালো
+080
+৪২ আয়াত
+৮১
+At-Takwir
+অন্ধকারাচ্ছন্ন
+081
+২৯ আয়াত
+৮২
+Al-Infitar
+বিদীর্ণ করা
+082
+১৯ আয়াত
+৮৩
+Al-Mutaffifin
+প্রতারণা করা
+083
+৩৬ আয়াত
+৮৪
+Al-Inshiqaq
+খণ্ড-বিখণ্ডকরণ
+084
+২৫ আয়াত
+৮৫
+Al-Buruj
+নক্ষত্রপুঞ্জ
+085
+২২ আয়াত
+৮৬
+At-Tariq
+রাতের আগন্তুক
+086
+১৭ আয়াত
+৮৭
+Al-A'la
+সর্বোন্নত
+087
+১৯ আয়াত
+৮৮
+Al-Ghashiyah
+বিহ্বলকর ঘটনা
+088
+২৬ আয়াত
+৮৯
+Al-Fajr
+ভোরবেলা
+089
+৩০ আয়াত
+৯০
+Al-Balad
+নগর
+090
+২০ আয়াত
+৯১
+Ash-Shams
+সূর্য
+091
+১৫ আয়াত
+৯২
+Al-Layl
+রাত
+092
+২১ আয়াত
+৯৩
+Ad-Duhaa
+পূর্বাহ্নের সুর্যকিরণ
+093
+১১ আয়াত
+৯৪
+Ash-Sharh
+বক্ষ প্রশস্তকরণ
+094
+৮ আয়াত
+৯৫
+At-Tin
+ডুমুর
+095
+৮ আয়াত
+৯৬
+Al-'Alaq
+রক্তপিণ্ড
+096
+১৯ আয়াত
+৯৭
+Al-Qadr
+মহিমান্বিত
+097
+৫ আয়াত
+৯৮
+Al-Bayyinah
+প্রমাণ
+098
+৮ আয়াত
+৯৯
+Az-Zalzalah
+ভূমিকম্প
+099
+৮ আয়াত
+১০০
+Al-'Adiyat
+অভিযানকারী
+100
+১১ আয়াত
+১০১
+Al-Qari'ah
+মহাসংকট
+101
+১১ আয়াত
+১০২
+At-Takathur
+প্রাচুর্যের প্রতিযোগিতা
+102
+৮ আয়াত
+১০৩
+Al-'Asr
+সময়
+103
+৩ আয়াত
+১০৪
+Al-Humazah
+পরনিন্দাকারী
+104
+৯ আয়াত
+১০৫
+Al-Fil
+হাতি
+105
+৫ আয়াত
+১০৬
+Quraysh
+কুরাইশ গোত্র
+106
+৪ আয়াত
+১০৭
+Al-Ma'un
+সাহায্য সহায়তা
+107
+৭ আয়াত
+১০৮
+Al-Kawthar
+কাউসার/প্রাচুর্য
+108
+৩ আয়াত
+১০৯
+Al-Kafirun
+অবিশ্বাসী
+109
+৬ আয়াত
+১১০
+An-Nasr
+সাহায্য
+110
+৩ আয়াত
+১১১
+Al-Masad
+খেজুরের পাকানো (রশি)
+111
+৫ আয়াত
+১১২
+Al-Ikhlas
+আন্তরিকতা
+112
+৪ আয়াত
+১১৩
+Al-Falaq
+নিশিভোর
+113
+৫ আয়াত
+১১৪
+An-Nas
+মানুষ জাতি
+114
+৬ আয়াত
+মাসিক দাতা হন
+মাসিক অনুদান আমাদের Quran.com-এর উন্নতি এবং কার্যক্রম টিকিয়ে রাখতে সাহায্য করে, তাই আমরা তহবিল সংগ্রহের উপর কম এবং প্রভাব তৈরির উপর বেশি মনোযোগ দিই। আরও জানুন
+
+এখনই দান করুন
+কুরআন পড়ুন, শুনুন, অনুসন্ধান করুন এবং চিন্তা করুন
+Quran.com হল একটি বিশ্বস্ত প্ল্যাটফর্ম যা বিশ্বব্যাপী লক্ষ লক্ষ মানুষ বিভিন্ন ভাষায় কুরআন পড়তে, অনুসন্ধান করতে, শুনতে এবং তার উপর চিন্তাভাবনা করার জন্য ব্যবহার করে। এটি অনুবাদ, তাফসির, তেলাওয়াত, শব্দে শব্দ অনুবাদ এবং গভীর অধ্যয়নের জন্য সরঞ্জাম সরবরাহ করে, যা সকলের কাছে কুরআনকে সহজলভ্য করে তোলে।
+
+সাদাকাহ জারিয়াহ হিসেবে, Quran.com মানুষকে কুরআনের সাথে গভীরভাবে সংযুক্ত হতে সাহায্য করার জন্য নিবেদিতপ্রাণ। Quran.Foundation দ্বারা সমর্থিত, একটি 501(c)(3) অলাভজনক সংস্থা, Quran.com সকলের জন্য একটি বিনামূল্যের এবং মূল্যবান সম্পদ হিসেবে বেড়ে চলেছে, আলহামদুলিল্লাহ.
+
+নেভিগেট করুন
+বাড়ি
+কোরআন রেডিও
+আবৃত্তিকারী
+আমাদের সম্পর্কে
+বিকাশকারীরা
+পণ্য আপডেট
+প্রতিক্রিয়া
+সাহায্য
+দান করুন
+আমাদের প্রকল্পগুলি
+Quran.com
+Quran For Android
+Quran iOS
+QuranReflect.com
+Quran.AI
+Sunnah.com
+Nuqayah.com
+Legacy.Quran.com
+Corpus.Quran.com
+Quran.Foundation এর মালিকানাধীন, পরিচালিত, অথবা স্পন্সরকৃত অলাভজনক প্রকল্প।
+জনপ্রিয় লিঙ্ক
+Ayatul Kursi
+Surah Yaseen
+Surah Al Mulk
+Surah Ar-Rahman
+Surah Al Waqi'ah
+Surah Al Kahf
+Surah Al Muzzammil
+সাইটম্যাপগোপনীয়তাশর্তাবলী
+© ২০২৬ Quran.com. সমস্ত অধিকার সংরক্ষিত
+
+অটো
+
+বাংলা
+সূরা Al-Fatihah - ১-৭ - Quran.com
 # Star
  A star is a luminous spheroid of plasma held together by self-gravity.[1] The nearest star to Earth is the Sun. Many other stars are visible to the naked eye at night; their immense distances from Earth make them appear as fixed points of light. The most prominent stars have been categorised into constellations and asterisms, and many of the brightest stars have proper names. Astronomers have assembled star catalogues that identify the known stars and provide standardized stellar designations. The observable universe contains an estimated 1022 to 1024 stars. Only about 4,000 of these stars are visible to the naked eye—all within the Milky Way galaxy.[2]
 
