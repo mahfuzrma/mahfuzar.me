@@ -3,12 +3,12 @@
     
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-3363883557088069"
      crossorigin="anonymous"></script></head>
-# [visit my blog mahfuzrma.blogspot.com clicking here](https://mahfuzrma.blogspot.com/?m=1)
+# [Visit my blog mahfuzrma.blogspot.com clicking here](https://mahfuzrma.blogspot.com/?m=1)
 # mobile number 008801521405436
 
-# [visit my fb id FB.me/mahfuzrma clicking here](https://FB.me/mahfuzrma)
+# [Visit my fb id FB.me/mahfuzrma clicking here](https://FB.me/mahfuzrma)
 
-# star
+# Star
  A star is a luminous spheroid of plasma held together by self-gravity.[1] The nearest star to Earth is the Sun. Many other stars are visible to the naked eye at night; their immense distances from Earth make them appear as fixed points of light. The most prominent stars have been categorised into constellations and asterisms, and many of the brightest stars have proper names. Astronomers have assembled star catalogues that identify the known stars and provide standardized stellar designations. The observable universe contains an estimated 1022 to 1024 stars. Only about 4,000 of these stars are visible to the naked eye—all within the Milky Way galaxy.[2]
 
 
